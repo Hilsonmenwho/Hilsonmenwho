@@ -9,7 +9,7 @@
  
 **I know, if you dance with fate, Then I know, I know, you'll enhance your state**
 
-*. ⋆•Dni: Proshipers, comshipers, darkshipers ect / Zoophiles / Maps(basicly the basic dni citera)
+*. ⋆•Dni: pro/dark/comshiters / Zoophiles / Maps(basicly the basic dni citera)
 
 **[...]**
 
